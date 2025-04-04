@@ -1,2 +1,2 @@
 # SideProjects
-Please use the links above "_______" and "_____" to view my projects
+Please use the links above "BlackScholesSideProjectFinal.pdf" and "LaserEngravingBusinessCardsProjectFinal1.pdf" to view my projects
